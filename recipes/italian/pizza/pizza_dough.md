@@ -6,6 +6,7 @@ Pizza Dough
 - 210g flour
 - 5g sugar
 - 4g salt
+- 4g yeast
 - 11g olive oil
 - 130ml water
 
