@@ -6,7 +6,7 @@ Risotto (plain)
 - 300g arborio rice
 - ~100ml wine
 - ~10g parmesan, grated
-- 1 diced shallot, diced
+- 1 shallot, diced
 - ~1 liter stock
 - ~3 tablespoons butter
 - salt, pepper, oil
