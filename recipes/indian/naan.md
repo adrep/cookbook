@@ -10,14 +10,13 @@ You can press (6 cloves) garlic, minced, prior to baking.
 
 ## Ingredients:
 
-- 1½cup flour
-- ¾cup bread flour
+- 530g flour
 - 140ml water
 - 70g greek yoghurt
 - 2tbsp ghee, melted
 - 1½tbsp instant yeast
 - 1tsp sugar, granulated
-- 1 tsp salt, fine
+- 1tsp salt, fine
 
 ## Preparation:
 
